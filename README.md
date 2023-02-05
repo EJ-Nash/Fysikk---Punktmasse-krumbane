@@ -1,0 +1,1 @@
+# Fysikk---Punktmasse-krumbane
